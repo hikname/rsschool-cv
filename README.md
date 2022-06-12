@@ -1,1 +1,1 @@
-https://hikname.github.io/rsschool-cv/cv
+https://hikname.github.io/rsschool-cv/
