@@ -1,1 +1,1 @@
-# rsschool-cv
+https://hikname.github.io/rsschool-cv/
